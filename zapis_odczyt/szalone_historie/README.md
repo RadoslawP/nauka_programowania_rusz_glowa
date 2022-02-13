@@ -1,0 +1,1 @@
+# szalone_historie
